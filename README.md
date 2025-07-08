@@ -10,4 +10,4 @@
 
 本站为您提供极速更新的高清影视资源，支持多种设备观看，确保用户享受流畅的观影体验。无需注册，无广告干扰，您可以在这里轻松找到各类精彩内容，随时随地畅享娱乐时光。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/chan20250708/chan11 ）</span>
